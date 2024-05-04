@@ -12,4 +12,4 @@
 
 If you need a more complex bot with specific functions contact me
 
-# [CONTACT ME VIA TELEGRAM](https:t.me/Zet_ELITEZTRADE) 
+# [CONTACT ME VIA TELEGRAM](https:t.me/Z1dev) 
